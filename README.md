@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Xtra001
+- 👋 Hi, I’m @Xtra001 diabetes type1 
 - im a peruvian/american developer 
 - im 17 years old 
 - white hat 
